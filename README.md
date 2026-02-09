@@ -1,3 +1,11 @@
+# Visit Deployed Website
+
+1224HuangJin Crack: https://jspvz.wyf9.top
+
+Original: https://jspvz.wyf9.top/original/
+
+---
+
 # New Plants vs. Zombies JavaScript Cracked Version | 新植物大战僵尸 JavaScript 破解版
 Plants vs. Zombies JavaScript from JiangNanGame But is Cracked for 1224HuangJin | 植物大战僵尸 JavaScript for JiangNanGame 但被 1224HuangJin 破解
 
